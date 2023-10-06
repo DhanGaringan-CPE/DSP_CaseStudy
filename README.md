@@ -7,7 +7,7 @@
 ### Original Video/Audio used
 - https://www.youtube.com/watch?v=ZChsMjm5-mk&t=18s&ab_channel=Levent
 
-### Gdrive 
+### Gdrive (Contains Dubbed Video)
 - https://drive.google.com/drive/folders/1r3NnymFIPNj65MR5Tj34LRlwazDNTYxc?usp=sharing
 
 
