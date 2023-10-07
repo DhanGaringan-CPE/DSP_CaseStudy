@@ -10,6 +10,9 @@
 ### Gdrive (Contains Dubbed Video)
 - https://drive.google.com/drive/folders/1r3NnymFIPNj65MR5Tj34LRlwazDNTYxc?usp=sharing
 
+### Dubbed Video
+- https://drive.google.com/file/d/1wZtBxCyL3UaV3K5hD_kxgMwOiVjjtF1F/view?usp=drive_link
+
 
 
 
